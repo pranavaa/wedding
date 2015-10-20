@@ -32,7 +32,7 @@ The wedding ceremony will be traditional telugu marriage where both the bride an
  
 Boy's parent met Girls parents
 
-portraits exchanged Groom Name and Bride name
+portraits exchanged Pranav and Kaliki
 
 met by God's grace
 
